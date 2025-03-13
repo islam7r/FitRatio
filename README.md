@@ -48,4 +48,4 @@ Download FitRatio – BMI Calculator now and take the first step toward understa
 
 🚀 Get FitRatio today and stay in control of your health!
 
-🚀 Live on the App Store! Download now: 
+🚀 Live on the App Store! Download now: https://apps.apple.com/tr/app/fitratio/id6743126278
